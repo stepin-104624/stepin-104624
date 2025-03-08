@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **saicharan10521@gmail.com**
 
-- 📄 Know about my experiences [8 years experience in coding](8
+- 📄 Know about my experiences [8 years experience in coding](6
  years experience in coding)
 
 <h3 align="left">Connect with me:</h3>
